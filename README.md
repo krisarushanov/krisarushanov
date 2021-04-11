@@ -1,4 +1,4 @@
-### no frills just thrills✨
+### No frills just thrills✨
 
 I'm a full stack web developer based on Maui. I recently graduated the University of Washington Coding bootcamp where I spent the last 6 months exploring the world of full stack. Lets connect! I'm always working on a fun project on Github or building my network on LinkedIn. You can also find me getting washed up trying to surf. Do something awesome and don't forget the best surfer is the one having the most fun.
 
